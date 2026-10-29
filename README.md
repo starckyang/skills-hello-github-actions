@@ -29,7 +29,7 @@
 
 *There's no better way to learn than building things!* 🚀
 
-WOW!!
+WOW!! we did it
 
 </div>
 
